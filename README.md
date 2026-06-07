@@ -1,5 +1,5 @@
 # Scott Ramey  
-**Implementation | Integrations | Customer Success (Non-Engineering Portfolio)**
+**Technical Scoping & Integration Delivery Portfolio**
 
 [LinkedIn](https://www.linkedin.com/in/scott-r-a57b98ab/) •  
 [Email](mailto:JRamey.Tech@outlook.com) •  
